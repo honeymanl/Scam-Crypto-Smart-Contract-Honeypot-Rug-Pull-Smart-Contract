@@ -17,7 +17,7 @@ There you will learn more about everything.
 
 ▪️ My Telegram Channel: [@honeyman1_community](https://t.me/honeyman1_community)
 
-Regards, [@honeyman1 ](https://t.me/honeyman1)🖤
+▪️ Regards, [@honeyman1 ](https://t.me/honeyman1)🖤
 
 ------------------------------------------------
 
