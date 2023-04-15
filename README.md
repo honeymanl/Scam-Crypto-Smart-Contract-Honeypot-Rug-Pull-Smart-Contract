@@ -1,25 +1,25 @@
-Hi there!
-We are the Honeyman1 team, and we are in the business of creating various smart contracts for your needs.
-We also have a large selection of ready-made smart contracts, including honeypot (different versions), rugpull, proxy contract and others..
+Hi guys, this is our official GitHub page To make sure, write to Telegram !
 
-Our team offers not only smart contracts, but also full 24/7 support and detailed instructions on how to use the contracts. Thanks to this, each of our customers can easily create their own token or project.
-All our contracts are made on the latest versions of Solidity and we always keep track of new trends and changes in the blockchain industry to provide our clients with only the most relevant solutions.
+We develop everything in the crypto market: smart contracts (skam or not skam) , crypto projects from A to Z , Nft projects , drainers, websites , app , crypto exchanges , exchanges and so on 
 
-We also make unique and different custom smart contracts that are perfect for your needs.
+From all described above , you can order a product according to your preferences , as well as a ready - made version , We also make unique different products for you, which is perfect for your needs!
 
-If you have any questions please contact us on Telegram [@honeyman1](https://t.me/honeyman1). There you will learn more about everything.
+We have great experience in this area, more than 2 years on the market, we have 400 + reviews, have done more than 900 crypto projects (different) 
+About us you can also find on the Internet, we have a great reputation in the market, there is a large branch on the forums, Telegram channels, YouTube and so on 
+There sootvetstvenno too can meet our reviews and so on!
 
-------------------------------------------------
+I wish success to all, if you have any questions, please contact in Telegram [@honeyman1](https://t.me/honeyman1).
+There you will learn more about everything.
+
+------------------------------------------------------------------------------------------
 
 ▪️ My Personal Telegram: [@honeyman1](https://t.me/honeyman1)
 
 ▪️ My Telegram Channel: [@honeyman1_community](https://t.me/honeyman1_community)
 
-▪️ Regards, [@honeyman1 ](https://t.me/honeyman1)🖤
-
+Regards, [@honeyman1 ](https://t.me/honeyman1)🖤
 
 ------------------------------------------------
-
 
 
 Please be careful, we have a lot of fakes who pretend to be us to be sure, contact us on Telegram: [@honeyman1](https://t.me/honeyman1)
